@@ -6,5 +6,3 @@ Meu nome é quezia
 - @viicxxp
 
 ![](https://media.tenor.com/MR4WrvbZRxsAAAAC/chopper-choppersparkle.gif)
-
-https://media.tenor.com/Ko-EvFHko0kAAAAC/misa-amane.gif
